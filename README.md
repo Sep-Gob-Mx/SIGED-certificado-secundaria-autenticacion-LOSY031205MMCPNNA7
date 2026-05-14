@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LOSY031205MMCPNNA7
+LOSY031205MMCPNNA7
